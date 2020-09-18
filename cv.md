@@ -2,7 +2,7 @@
 
 **Contacts**
 
-_LinkedIn:_ https://www.linkedin.com/in/sergey-kuznetsov/
+_LinkedIn:_[https://www.linkedin.com/in/sergey-kuznetsov/](https://www.linkedin.com/in/sergey-kuznetsov/)
 
 _Telegram:_ @KuznetsovSerg
 
