@@ -2,6 +2,7 @@
 
 **Contacts**
 
+_LinkedIn:_ https://www.linkedin.com/in/sergey-kuznetsov/
 _Telegram:_ @KuznetsovSerg
 _Phone:_ +3(8093)275-15-10
 _Email:_ serg.kuznetsov89@gmail.com
