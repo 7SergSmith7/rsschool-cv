@@ -23,10 +23,12 @@ Gepur.com
 **Education**
 
 _Odessa State Polytechnic University_
+
 Bachelor's degreeСпециализацияSoftware Engineering
 _2011 – 2013_
 
 _Odessa State Economics University_
+
 Master's degreeСпециализацияEconomics of Enterprise
 _2007 – 2012_
 
