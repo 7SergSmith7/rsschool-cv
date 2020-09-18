@@ -33,8 +33,11 @@ _2007 – 2012_
 **Additional education**
 
 _Communications skills school Bazilik_ — Workshop Digital Strategy 2019
+
 _Platform LABA_ — Product Manager 2018
+
 _Kyiv Academy of Media Arts_ — Marketing Strategy 2017
+
 _DataArt_ — Spring IT School Member 2016
 
 **English level : B1**
